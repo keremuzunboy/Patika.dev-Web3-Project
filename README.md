@@ -1,5 +1,5 @@
 https://m7sm4-2iaaa-aaaab-qabra-cai.raw.ic0.app/?tag=3764638282
-![Ekran Resmi 2024-10-20 18 23 23](https://github.com/user-attachments/assets/95a04866-da17-4581-9f7e-5594af424903)
+![Ekran Resmi 2024-10-20 18 43 39](https://github.com/user-attachments/assets/42f0f4ff-be3a-4382-874d-70c5ebfedd34)
 ![Ekran Resmi 2024-10-20 18 36 09](https://github.com/user-attachments/assets/c2157d6c-89c8-409c-9dcb-93ebf8db18e3)
 ![Ekran Resmi 2024-10-20 18 37 40](https://github.com/user-attachments/assets/429834e9-2933-4d71-97ad-c382de65e45a)
 ![Ekran Resmi 2024-10-20 18 38 10](https://github.com/user-attachments/assets/2b437bcf-5e7d-454b-86bb-a41ae8a02d0b)
